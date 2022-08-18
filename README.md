@@ -23,7 +23,7 @@ Kata-Kata Motivasi Hidup untuk Masa Depan Cerah bye Pascol Top Global Miya Mobil
   <summary><b>✨&nbsp;&nbsp;Tentang&nbsp;Saya</b></summary>
   <br/>
 
-Saya bukan siapa-siapa hanya Top Global Miya yang menjalankan node validator.<br/> cita cita ku ingin merasakan jp dan mencium naga🐲🐉
+Saya bukan siapa-siapa hanya Top Global Miya yang menjalankan node validator.<br/>yang ingin merasakan bau bau jp 🐲🐉 bukan bau ampas
 </details> 
 
 <details>
